@@ -1,6 +1,5 @@
-Welcome to Helbreath Fusion Proyect
-www.helbreathfusion.com
-Developer by KenZoB
+Welcome to Helbreath Fusion Proyect, PVP HIGH SERVER
+
 Colaboration Luquitas Tschoop & Kazin Lujan
 
 
